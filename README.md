@@ -1,7 +1,7 @@
 ![Illustration_sans_titre 4](https://github.com/helia0/Love-Interest/assets/135524315/3b020c5a-dc0e-4ea4-b70c-296968bfa899)# Love-Interest
 Game/Narrative/Level Design/Scenario
 
-![Illustration_sans_titre 4](https://github.com/helia0/Love-Interest/assets/135524315/4963a5e1-11d8-4e9a-877c-59ca88d29bcb)
+
 
 Concept:
 
